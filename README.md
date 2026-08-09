@@ -1,1 +1,2 @@
 # rajumusaregali
+personal info
